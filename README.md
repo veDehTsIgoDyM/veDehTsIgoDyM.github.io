@@ -1,4 +1,4 @@
 ###### $VED ehT sI goD yM
 #### (Mirrored)
-##### [Twitter] (https://x.com/veDehTsIgoDyM)
-###### [Buy on Moonshot] ()
+##### __Twitter__ https://x.com/veDehTsIgoDyM/
+###### __Buy on Moonshot__ ()
